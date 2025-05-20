@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **aditdg1@gmail.com**
 
-- 📄 Know about my experiences [https://adit-dasgupta-resume.tiiny.site](https://adit-dasgupta-resume.tiiny.site)
+- 📄 Learn about my experiences [https://adit-dasgupta-resume.tiiny.site](https://adit-dasgupta-resume.tiiny.site)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
